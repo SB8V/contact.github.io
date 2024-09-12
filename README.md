@@ -1,1 +1,1 @@
-notscam.github.io
+contact.github.io
